@@ -1,2 +1,2 @@
-# nataliamoraes.github.io
+http://nataliamoraes.github.io
 Meu Currículo
